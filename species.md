@@ -22,7 +22,7 @@ This mysterious species inhabits a planet outside the solar system, one that is 
 Since any knowledge concerning the Oracles is kept secret and considered sacred by the Seers, little else is known about their society or their motives. The most ancient of godly tales, if interpreted correctly, teach that the Oracles had warned the Predecessors of advancing too far in their quest for greater knowledge and technology. The Oracles speak High Syrioc, a language considered holy to the Seers.
 
 ## Avaluden (Live on Riverwyte)
-To be written.
+Warrior race living on Riverwyte, Crannack’s moon. Averaging 7-8 feet tall, with four arms. They are a race that emphasizes honor and bravery, but with early atomic-era technology. They are very warlike, but with a chivalry-like code that guides their actions. They are led by a shaman/priest class that has weakened physical strength but have natural psionic abilities that enable them to use artifacts of the predecessors for magical uses. Highly aggressive and territorial, they are divided into numerous factions that are constantly battling each other.
 
 ## Wislani
 A legendary race of space-faring nomads gifted at trade. Though rare, they have made a name of being able to verbally wrestle fortunes away. Often carefree and relaxed, they live for centuries. Their long lifespan is well-known, and tends to lend better credibility to their opinions and suggestions if they are trusted. They look mostly humanoid, but slightly smaller than humans with pointed ears and near transparent skin. They mostly navigate without the instruments of modern ships and keep their ships small and comfortable. Whenever they are on a planet, they are nocturnal.
